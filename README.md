@@ -5,5 +5,8 @@
 
 ![Dog that does not deserve to be hated](https://cdn.pixabay.com/photo/2017/09/25/13/12/cocker-spaniel-2785074__340.jpg)
 
-######  Source: 
-###### https://en.wikipedia.org/wiki/Love_That_Dog
+######  Sources: 
+[Wiki](https://en.wikipedia.org/wiki/Love_That_Dog)
+
+[Incriminating Evidence](https://github.com/AnimalHAter666)
+
